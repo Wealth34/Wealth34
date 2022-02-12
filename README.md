@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Wealth34
-- 👀 I’m interested in ...knowing how to be a good I tenet users 
+- 👀 I’m interested in ...knowing how to be a good internet users 
 - 🌱 I’m currently learning ...on github
-- 💞️ I’m looking to collaborate on ...how to be a well and great expert in hacking 
+- 💞️ I’m looking to collaborate on ...how to be a well and great expert in hacking with sherlock
 - 📫 How to reach me ...psamuelolawoyin@gmail.com
 
 <!---
